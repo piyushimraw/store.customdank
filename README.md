@@ -1,2 +1,1 @@
-# store.customdank
-Create your own fashion statement by making dank Tshirt Design
+Create your own Dank fashion statement with cloth customiser
